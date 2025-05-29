@@ -1,2 +1,0 @@
-# agrinho
-atividade segundo trimestre
